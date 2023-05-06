@@ -1,3 +1,3 @@
-Hi, I’m @vlrchtlt
-I’m interested in fashion tech
+- Hi, I’m @vlrchtlt
+- I’m interested in fashion tech
 
